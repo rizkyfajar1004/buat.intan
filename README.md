@@ -1,2 +1,0 @@
-# buat.intan
-Ya
